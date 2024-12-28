@@ -1,1 +1,1 @@
-![](https://64.media.tumblr.com/f00b8b6b9cf56804a514b61b13ee1e92/dcf2f797587ff1df-a9/s400x600/09e043d2364fdc198681b165b387997fa33045d7.gifv)
+![](https://static.wikia.nocookie.net/regretevator/images/f/fa/Zmelanie2.png/revision/latest/scale-to-width-down/1000?cb=20240529200924)
