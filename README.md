@@ -1,1 +1,5 @@
-![](https://static.wikia.nocookie.net/regretevator/images/f/fa/Zmelanie2.png/revision/latest/scale-to-width-down/1000?cb=20240529200924)
+<p align="center"
+  
+![](https://i.postimg.cc/R02FQkdv/WHY.png)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quattrocento&size=30&duration=4000&pause=1000&color=BD0000&center=true&width=435&lines=I'll+always+be+here+for+you%2C+Isaac.)](https://git.io/typing-svg)
+</p>
