@@ -1,5 +1,7 @@
 <p align="center"
-  
-![](https://i.postimg.cc/gjngF6RV/WHY.png)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quattrocento&size=30&duration=4000&pause=1000&color=BD0000&center=true&width=435&lines=I'll+always+be+here+for+you%2C+Isaac.)](https://git.io/typing-svg)
+
+![](https://i.postimg.cc/ZqQpK6XT/blawxer-longst01.png)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Rowdies&size=35&duration=2500&pause=1500&color=F74025&width=570&height=75&lines=Be+prepared%2C+TO+GET+PWNED!!!!!)](https://git.io/typing-svg)
+
+art by longst01 on twt
 </p>
